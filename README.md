@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **C, Java, MySQl, MongoDB, DataBase**
 
-- 📫 How to reach me **aniketgonjare2@gmail.com**
+- 📫 How to reach me **nikhilbhosale9089@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
